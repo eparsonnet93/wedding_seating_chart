@@ -1,4 +1,4 @@
-How we assigned seating at our wedding
+How we assigned seating at our wedding (randomly, except not splitting couples and the wedding party sits together)
 
 Usage below:
 
